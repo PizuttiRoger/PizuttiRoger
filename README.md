@@ -1,4 +1,4 @@
-- 👋 Olá,eu sou Roger Pizutti
+- 👋 Olá, eu sou Roger Pizutti
 - 👀 Me interesso bastante por esportes
 - 🌱 Atualmente estou cursando Sistemas de Informação
 - 📫 Contato: @eeuroger no instagram 
